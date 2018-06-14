@@ -4,7 +4,7 @@
 ### *I will exericse for at least a half hour (30 minutes) every day for the next 100 days.*
 
 #### Start Date
-January  09th, 2018.
+May 14th, 2018.
 
 ## Additional Rules
 1. I will tweet about my progress every day -> using the hashtag #100DaysOfExercise

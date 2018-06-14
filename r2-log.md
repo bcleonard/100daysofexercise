@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 2 Log
 
+### Round 2 Day 11: Thursday, June 14, 2018
+
+##Today's Progress##:  took Harley for a 30 minute walk.
+
+**Thoughts**:  walking in the morning is cooler but the dog loves to roll around in the wet grass.  Now she smells like wet dog with a hint of freshly cut grass.
+
+### Round 2 Day 10: Wednesday, June 13, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 1
+
+**Thoughts**:  ready to complete it this time
+
 ### Round 2 Day 9: Tuesday, June 12, 2018
 
 ##Today's Progress##:  did yard work for over an hour
