@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 2 Log
 
+### Round 2 Day 12: Saturday, June 16, 2018
+
+##Today's Progress##:  Picked blueberries with Crichton as part of a cub scouts summer service project
+
+**Thoughts**:  knocked it out for an hour in the morning
+
+### Round 2 Day 11: Friday, June 15, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 2
+
+**Thoughts**:  ready to complete it this time
+
 ### Round 2 Day 11: Thursday, June 14, 2018
 
 ##Today's Progress##:  took Harley for a 30 minute walk.
