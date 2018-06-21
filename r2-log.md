@@ -1,5 +1,23 @@
 # 100 Days Of Exercise - Round 2 Log
 
+### Round 2 Day 15: Thursday, June 21, 2018
+
+##Today's Progress##:  took Harley for a 30 minute walk.
+
+**Thoughts**:  walking in the morning is cooler but the dog loves to roll around in the wet grass.  Now she smells like wet dog with a hint of freshly cut grass.
+
+### Round 2 Day 14: Wednesday, June 20, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 2 workout 1
+
+**Thoughts**:  ready to complete it this time
+
+### Round 2 Day 13: Monday, June 18, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 3
+
+**Thoughts**:  ready to complete it this time
+
 ### Round 2 Day 12: Saturday, June 16, 2018
 
 ##Today's Progress##:  Picked blueberries with Crichton as part of a cub scouts summer service project
