@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 3 Log
 
+### Round 03 Day 02: Monday, November 05, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 1
+
+**Thoughts**  lets get started...
+
 ### Round 03 Day 01: Monday, November 05, 2018
 
 ##Today's Progress##:  completed zombie couch to 5k the story begins....
