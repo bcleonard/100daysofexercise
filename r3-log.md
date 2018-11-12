@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 3 Log
 
+### Round 03 Day 05: Saturday, November 09, 2018
+
+##Today's Progress##:  did over an hour of yard work
+
+**Thoughts**  last mow of the year
+
+### Round 03 Day 04: Friday, November 08, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 2
+
+**Thoughts**  knocked it out first thing today
+
 ### Round 03 Day 03: Thursday, November 08, 2018
 
 ##Today's Progress##:  walked Harley Quinn for 30 minutes
