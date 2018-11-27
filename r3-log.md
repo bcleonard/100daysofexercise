@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 3 Log
 
+### Round 03 Day 13: Tuesday, November 27, 2018
+
+##Today's Progress##:  took harley on a 30 minute walk.
+
+**Thoughts**  back still hurts.  Hopefully I can start back up tomorrow.
+
 ### Round 03 Day 12: Monday, November 26, 2018
 
 ##Today's Progress##:  took harley on a 30 minute walk.
