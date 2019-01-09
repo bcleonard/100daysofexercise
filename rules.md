@@ -8,7 +8,7 @@ May 14th, 2018.
 
 ## Additional Rules
 1. I will tweet about my progress every day -> using the hashtag #100DaysOfExercise
-2. I will update the [log](r1-log.md) with the day's progress and provide a link so that others can see my progress.
+2. I will update the [log](r4-log.md) with the day's progress and provide a link so that others can see my progress.
 3. Any exericse that adds a minute to my apple iwatch exercise ring counts.  This includes walking and/or running.
 
 
@@ -17,7 +17,7 @@ May 14th, 2018.
 2. Another good bonus of forking this repo -> if you haven't worked with Markdown before, it's a good way to practice.
 
 ## Contents
-* [Log - click here to see my progress](r1-log.md)
+* [Log - click here to see my progress](r4-log.md)
 * [Rules](rules.md)
 * [FAQ](FAQ.md)
 * [Resources](resources.md)

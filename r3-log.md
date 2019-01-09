@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 3 Log
 
+### Round 03 Day 15: Wednesday, December 05, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 3 workout 1
+
+**Thoughts**  started running againn
+
+### Round 03 Day 14: Monday, December 03, 2018
+
+##Today's Progress##:  completed zombie couch to 5k week 2 workout 3
+
+**Thoughts**  started running againn
+
 ### Round 03 Day 13: Tuesday, November 27, 2018
 
 ##Today's Progress##:  took harley on a 30 minute walk.
