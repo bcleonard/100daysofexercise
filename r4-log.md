@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 04: Thursday, January 10, 2019
+
+##Today's Progress##:  took harley quinn for a 30 minute walk
+
+**Thoughts**  boy does she need walksies.
+
 ### Round 04 Day 3: Wednesday, January 09, 2019
 
 ##Today's Progress##:  took harley quinn for a 30 minute walk
