@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 12: Sunday, February 24, 2019
+
+##Today's Progress##:  walked Harley Quinn for 30 minutes
+
+**Thoughts**  took the dog for a walk, she loved it
+
 ### Round 04 Day 11: Friday, February 22, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 1 workout 2
