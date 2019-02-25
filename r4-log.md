@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 13: Monday, February 25, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 1 workout 3
+
+**Thoughts**  week 1 completed
+
 ### Round 04 Day 12: Sunday, February 24, 2019
 
 ##Today's Progress##:  walked Harley Quinn for 30 minutes
