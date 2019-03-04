@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 17: Sunday, March 03, 2019
+
+##Today's Progress##:  Walked for 3.5 miles throughout the USS Yorktown
+
+**Thoughts**  It doesn't feel very long, but is a long ship.
+
 ### Round 04 Day 16: Saturday, March 02, 2019
 
 ##Today's Progress##:  Walked for 4.5 miles throughout the USS Yorktown
