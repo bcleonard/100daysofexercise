@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 18: Monday, March 04, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 2 workout 3
+
+**Thoughts**  finished week 2
+
 ### Round 04 Day 17: Sunday, March 03, 2019
 
 ##Today's Progress##:  Walked for 3.5 miles throughout the USS Yorktown
