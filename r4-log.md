@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 20: Saturday, March 09, 2019
+
+##Today's Progress##:  did yard work for over an hour
+
+**Thoughts**  ugh.  its warm enough to do yard work.
+
+### Round 04 Day 19: Thursday, March 07, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 3 workout 1
+
+**Thoughts**  started week 3
+
 ### Round 04 Day 18: Monday, March 04, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 2 workout 3
