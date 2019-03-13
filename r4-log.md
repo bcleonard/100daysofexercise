@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 23: Wednesday, March 13, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 3 workout 3
+
+**Thoughts**  fetched medicine for abel on my first supply run.
+
 ### Round 04 Day 22: Monday, March 11, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 3 workout 2
