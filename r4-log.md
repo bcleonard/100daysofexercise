@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 24: Friday, March 15, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 4 workout 1
+
+**Thoughts**  earned runner 5 gear after a challenging workout.
+
 ### Round 04 Day 23: Wednesday, March 13, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 3 workout 3
