@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 26: Friday, March 22, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 4 workout 3
+
+**Thoughts**  Saved Runner Six's life today.
+
 ### Round 04 Day 25: Monday, March 18, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 4 workout 2
