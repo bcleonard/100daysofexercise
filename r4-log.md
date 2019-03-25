@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 28: Monday, March 25, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 5 workout 1
+
+**Thoughts**  wonder what same will do with this new info for his secret mission.
+
 ### Round 04 Day 27: Saturday, March 23, 2019
 
 ##Today's Progress##:  did yard work for over an hour
