@@ -1,10 +1,16 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 29: Tuesday, March 26, 2019
+
+##Today's Progress##:  racked 25 servers
+
+**Thoughts**  not bad for a day's work
+
 ### Round 04 Day 28: Monday, March 25, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 5 workout 1
 
-**Thoughts**  wonder what same will do with this new info for his secret mission.
+**Thoughts**  wonder what sam will do with this new info for his secret mission.
 
 ### Round 04 Day 27: Saturday, March 23, 2019
 
