@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 30: Thursday, March 28, 2019
+
+##Today's Progress##:  walked for over 30 minutes
+
+**Thoughts**  thats what you get for walking in a DC and and airport
+
 ### Round 04 Day 29: Tuesday, March 26, 2019
 
 ##Today's Progress##:  racked 25 servers
