@@ -1,5 +1,17 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 32: Thursday, April 04, 2019
+
+##Today's Progress##:  walked for 30 minutes
+
+**Thoughts**:  started to run, but my knee started hurting so I switched to a 30 minute walk.
+
+### Round 04 Day 31: Monday, April 01, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 5 workout 2
+
+**Thoughts**:  Exchanged information to help on Sam's quest. 
+
 ### Round 04 Day 30: Thursday, March 28, 2019
 
 ##Today's Progress##:  walked for over 30 minutes
