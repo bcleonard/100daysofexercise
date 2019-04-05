@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 33: Friday, April 05, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 5 workout 3
+
+**Thoughts**:  spun a good yarn by Runner 4 today
+
 ### Round 04 Day 32: Thursday, April 04, 2019
 
 ##Today's Progress##:  walked for 30 minutes
