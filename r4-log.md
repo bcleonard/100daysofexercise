@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 34: Friday, April 05, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 6 workout 1
+
+**Thoughts**:  Rambled at by Rajit, who's a bit short on his marbles.
+
 ### Round 04 Day 33: Friday, April 05, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 5 workout 3
