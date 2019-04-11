@@ -1,6 +1,12 @@
 # 100 Days Of Exercise - Round 4 Log
 
-### Round 04 Day 34: Friday, April 05, 2019
+### Round 04 Day 35: Thursday, April 11, 2019
+
+##Today's Progress##:  completed zombie couch to 5k week 6 workout 2
+
+**Thoughts**:  Overhead some juicy details about my real mission here at Abel.
+
+### Round 04 Day 34: Monday, April 08, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 6 workout 1
 
