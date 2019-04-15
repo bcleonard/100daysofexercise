@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 36: Saturday, April 13, 2019
+
+##Today's Progress##:  completed a 4.25 mile hike
+
+**Thoughts**:  15,981 steps and 7.41 miles
+
 ### Round 04 Day 35: Thursday, April 11, 2019
 
 ##Today's Progress##:  completed zombie couch to 5k week 6 workout 2
