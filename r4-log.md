@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 38: Tuesday, April 16, 2019
+
+##Today's Progress##:  unboxed 25 servers and 1006 HD
+
+**Thoughts**:  another day, another doller
+
 ### Round 04 Day 37: Monday, April 15, 2019
 
 ##Today's Progress##:  walked for 30 minutes
