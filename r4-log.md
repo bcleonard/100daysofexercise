@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 39: Wednesday, April 17, 2019
+
+##Today's Progress##:  racked 25 servers and installed 1006 HD
+
+**Thoughts**:  another day, another doller
+
 ### Round 04 Day 38: Tuesday, April 16, 2019
 
 ##Today's Progress##:  unboxed 25 servers and 1006 HD
