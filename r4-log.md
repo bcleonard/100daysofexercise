@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 40: Saturday, April 20, 2019
+
+##Today's Progress##:  walked for 30 minutes
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 39: Wednesday, April 17, 2019
 
 ##Today's Progress##:  racked 25 servers and installed 1006 HD
