@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 42: Monday, April 22, 2019
+
+##Today's Progress##:  walked for 30 minutes
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 41: Sunday, April 21, 2019
 
 ##Today's Progress##:  walked for 30 minutes
