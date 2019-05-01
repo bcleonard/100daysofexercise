@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 50: Tuesday, April 30, 2019
+
+##Today's Progress##:  walked for 30 minutes
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 49: Monday, April 29, 2019
 
 ##Today's Progress##:  walked for 30 minutes
