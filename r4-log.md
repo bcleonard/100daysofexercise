@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 56: Monday, May 19, 2019
+
+##Today's Progress##:  did yard work for over an hour
+
+**Thoughts**:  another day, another lawn mowed
+
 ### Round 04 Day 55: Sunday, May 18, 2019
 
 ##Today's Progress##:  did yard work for over an hour
