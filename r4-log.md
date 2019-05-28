@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 58: Monday, May 27, 2019
+
+##Today's Progress##:  worked in basement on a project for a few hours
+
+**Thoughts**:  halfway done with project
+
 ### Round 04 Day 57: Sunday, May 26, 2019
 
 ##Today's Progress##:  did yard work for over an hour
