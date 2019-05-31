@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 59: Tuesday, May 28, 2019
+
+##Today's Progress##:  took Harley for a 30 minute walk
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 58: Monday, May 27, 2019
 
 ##Today's Progress##:  worked in basement on a project for a few hours
