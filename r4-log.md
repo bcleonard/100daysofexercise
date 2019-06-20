@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 65: Friday, June 15, 2019
+
+##Today's Progress##:  walked over 15,000 steps at scout camp
+
+**Thoughts**:  Sixth day of scout camp
+
 ### Round 04 Day 64: Thursday, June 14, 2019
 
 ##Today's Progress##:  walked over 15,000 steps at scout camp
