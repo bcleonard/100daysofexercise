@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 61: Sunday, June 9, 2019
+
+##Today's Progress##:  walked over 15,000 at scout camp
+
+**Thoughts**:  first day of scout camp
+
 ### Round 04 Day 60: Wednesday, May 29, 2019
 
 ##Today's Progress##:  took Harley for a 30 minute walk
