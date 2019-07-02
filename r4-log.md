@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 67: Sunday, June 30, 2019
+
+##Today's Progress##:  did about 6 hours of yard work
+
+**Thoughts**:  i hate yard work
+
 ### Round 04 Day 66: Wednesday, June 19, 2019
 
 ##Today's Progress##:  mowed the lawn
