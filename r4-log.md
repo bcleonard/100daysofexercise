@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 70: Sunday, July 7, 2019
+
+##Today's Progress##:  worked in the yard for 2 hours
+
+**Thoughts**:  another day, another yard
+
 ### Round 04 Day 69: Friday, July 5, 2019
 
 ##Today's Progress##:  walked for over 30 minutes
