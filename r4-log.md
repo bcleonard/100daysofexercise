@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 69: Friday, July 5, 2019
+
+##Today's Progress##:  walked for over 30 minutes
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 68: Monday, July 1, 2019
 
 ##Today's Progress##:  took Harley for a walk
