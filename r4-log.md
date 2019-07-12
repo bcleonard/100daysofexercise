@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 72: Friday, July 12, 2019
+
+##Today's Progress##:  walked Harley for 30 minutes
+
+**Thoughts**:  another day, another walk
+
 ### Round 04 Day 71: Wednesday, July 10, 2019
 
 ##Today's Progress##:  walked Harley for 30 minutes
