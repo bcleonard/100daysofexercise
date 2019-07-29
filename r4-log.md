@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 79: Sunday, July 28, 2019
+
+##Today's Progress##:  did yard work for over 30 minutes
+
+**Thoughts**:  another day, another yard
+
 ### Round 04 Day 78: Saturday, July 27, 2019
 
 ##Today's Progress##:  did yard work for over 2 hours
