@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 4 Log
 
+### Round 04 Day 80: Monday, July 29, 2019
+
+##Today's Progress##:  walked Harley for 30 minutes
+
+**Thoughts**:  silly dog
+
 ### Round 04 Day 79: Sunday, July 28, 2019
 
 ##Today's Progress##:  did yard work for over 30 minutes
