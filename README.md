@@ -1,7 +1,7 @@
 # I've joined the #100DaysOfExcercise Challenge.
 
 ## Contents
-* [Log - click here to see my progress](r4-log.md)
+* [Log - click here to see my progress](r5-log.md)
 * [Rules](rules.md)
 * [FAQ](FAQ.md)
 * [Resources](resources.md)
