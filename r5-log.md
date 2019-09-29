@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 11: Sunday, September 29, 2019
+
+##Today's Progress##:  walked harley for over 30 minutes
+
+**Thoughts**:  funny dog
+
 ### Round 05 Day 10: Saturday, September 28, 2019
 
 ##Today's Progress##:  completed zombie run game week 1 day 2
