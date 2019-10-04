@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 16: Friday, October 04, 2019
+
+##Today's Progress##:  walked for over 30 minutes
+
+**Thoughts**:  wife wouldn't let me walk outside today
+
 ### Round 05 Day 15: Thursday, October 03, 2019
 
 ##Today's Progress##:  completed zombie run game week 2 day 1
