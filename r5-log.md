@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 17: Saturaday, October 05, 2019
+
+##Today's Progress##:  completed zombie run game week 2 day 1
+
+**Thoughts**:  got to go outside with the dog
+
 ### Round 05 Day 16: Friday, October 04, 2019
 
 ##Today's Progress##:  walked for over 30 minutes
