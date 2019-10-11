@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 23: Friday, October 11, 2019
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  silly dog
+
 ### Round 05 Day 22: Thursday, October 10, 2019
 
 ##Today's Progress##:  completed zombie run game week 3 day 1
