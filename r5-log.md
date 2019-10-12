@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 24: Saturday, October 12, 2019
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  silly dog
+
 ### Round 05 Day 23: Friday, October 11, 2019
 
 ##Today's Progress##:  walked Harley for over 30 minutes
