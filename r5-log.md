@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 28: Wednesday, October 16, 2019
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  silly dog
+
 ### Round 05 Day 27: Tuesday, October 15, 2019
 
 ##Today's Progress##:  completed zombie run game week 3 day 3
