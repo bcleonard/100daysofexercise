@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 30: Friday, October 18, 2019
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  I've unleased a monster.  She's pulling me to go faster.
+
 ### Round 05 Day 29: Thursday, October 17, 2019
 
 ##Today's Progress##:  completed zombie run game week 4 day 1
