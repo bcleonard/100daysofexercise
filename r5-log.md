@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 31: Monday, October 21, 2019
+
+##Today's Progress##:  walked for over 30 minutes
+
+**Thoughts**:  this was all achieved in airports
+
 ### Round 05 Day 30: Friday, October 18, 2019
 
 ##Today's Progress##:  walked Harley for over 30 minutes
