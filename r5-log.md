@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 32: Monday, October 28, 2019
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  I've been sick for the past week, so I'm easing back into it.
+
 ### Round 05 Day 31: Monday, October 21, 2019
 
 ##Today's Progress##:  walked for over 30 minutes
