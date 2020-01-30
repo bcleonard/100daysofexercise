@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 36: Saturday, January 25, 2020
+
+##Today's Progress##:  Did a 2 mile & 3.5 mile hike.
+
+**Thoughts**:  I haven't been recording my exercise (what little there is of it).  I decided to keep going as apposed to starting a new log
+
 ### Round 05 Day 35: Thursday, October 31, 2019
 
 ##Today's Progress##:  walked Harley for over 30 minutes
