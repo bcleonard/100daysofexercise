@@ -1,5 +1,11 @@
 # 100 Days Of Exercise - Round 5 Log
 
+### Round 05 Day 37: Wednesday, January 29, 2020
+
+##Today's Progress##:  walked Harley for over 30 minutes
+
+**Thoughts**:  Started walking the dog again
+
 ### Round 05 Day 36: Saturday, January 25, 2020
 
 ##Today's Progress##:  Did a 2 mile & 3.5 mile hike.
